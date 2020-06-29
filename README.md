@@ -1,2 +1,2 @@
 # yiran
-miaomiao is ba=eautiful girl;
+her mather is beautiful girl;
